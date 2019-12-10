@@ -1,2 +1,4 @@
 # second-hello-world
 testing git hub again cuz i forgot everything
+
+bla bla bla again... its about a year since my previous repository and holy shit ive gotten no where near where i wanted to be so im gonna take this december to actually learn stuff and become a genius again lol like i ever was but again im typying all this without looking and im probalbly making so many spelling mistakes but tbh i dont give a fuuuuuvk okay well last one was on the gourth of january and this one is one the tenth of december so almost a uear now and basically now gonna get serious with programming cuz im gonna be learning all this stuff next year and by the end og next year i want to be a bosss at typing and python and java and machine learning shit i have to go charge this thing enjoy i like boobs you love cass dont forget her bitch. boobs big boobs
